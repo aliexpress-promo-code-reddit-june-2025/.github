@@ -1,4 +1,4 @@
-Best AliExpress Promo Code Reddit June 2025. Use AliExpress promo codes to save up to $60 on your order. If you’re shopping in 2025, we’ve got you covered with the latest AliExpress promo codes that will help you get the best discounts.
+Best AliExpress Promo Code Reddit June 2025. Use AliExpress promo codes to save up to $50 on your order. If you’re shopping in 2025, we’ve got you covered with the latest AliExpress promo codes that will help you get the best discounts.
 
 ## Latest AliExpress Promo Code Reddit for 2025
 Before you start shopping, take a look at these amazing AliExpress promo codes for 2025 that will help you save big.
